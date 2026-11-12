@@ -1,1 +1,0 @@
-# Marktbearbeitung-und-Vertrieb-Quiz-2.0
